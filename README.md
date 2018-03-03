@@ -1,0 +1,1 @@
+# linklisted_veri_yapilari
